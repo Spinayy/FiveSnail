@@ -1,7 +1,7 @@
 # FiveSnail
 fivesnail the complete scam.
 
-#Uses free shit for his "cheats"
+# Uses free shit for his "cheats"
 
 ![image](https://user-images.githubusercontent.com/47867642/210114710-710b67be-c804-4301-8ec9-53b2b8d16505.png)
 
